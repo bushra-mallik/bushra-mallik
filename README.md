@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bushra-mallik
+- 👋 Hi, I’m @bushra-malick
 - 👀 I’m interested in cooking
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on tech company
