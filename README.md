@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on tech company
 - 📫 How to reach me go to the roof top and jump from terres
-- 😄 Pronouns: bushra malick
+- 😄 Pronouns: Bushra malick
 - ⚡ Fun fact: I'm cute 
 
 <!---
